@@ -29,4 +29,4 @@
 ## 📫 Контакты
 
 - Email: anemonnae@gmail.com
-- Telegram: [[t.me](https://t.me/gideonnae)]
+- Telegram: [[t.me/gideonnae](https://t.me/gideonnae)]
